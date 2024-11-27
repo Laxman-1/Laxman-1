@@ -29,10 +29,6 @@
 - GitHub:[@Laxman-1](https://github.com/Laxman-1)  
 - LinkedIn:[](#)  
 
----
-
-##😄 Pronouns  
-He/Him  
 
 ## ⚡ Fun Fact  
 When I'm not coding, you'll find me brainstorming creative solutions or diving into tech trends to level up my skills!  
