@@ -27,7 +27,7 @@
 
 - Email:[pathaklaxnan122@gmail.com]  
 - GitHub:[@Laxman-1](https://github.com/Laxman-1)  
-- LinkedIn:[](#)  
+- LinkedIn:[laxman-pathak-1b25b6216](https://www.linkedin.com/in/laxman-pathak-1b25b6216/edit/intro/?profileFormEntryPoint=PROFILE_SECTION&lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base%3BnPttl6%2BOR9KNOzTTVIqj1Q%3D%3D)  
 
 
 ## ⚡ Fun Fact  
